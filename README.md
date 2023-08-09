@@ -2,5 +2,5 @@
 
 - Integrantes:
   
-- Priscilla González 🌸
-- Estefanía Elvira 🌼
+-   Priscilla González 🌸
+-   Estefanía Elvira 🌼
